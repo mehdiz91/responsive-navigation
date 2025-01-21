@@ -7,5 +7,3 @@ https://codepen.io/mszayani91/pen/WNoPvgJ
 
 
 
-Visit my website 
-https://www.mszayani.com
